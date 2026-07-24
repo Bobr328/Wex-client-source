@@ -1,0 +1,1 @@
+I do not endorse the contents of this client; I am releasing it solely for educational purposes to ensure everyone's safety. I simply want to show it to people—I do not support the project itself; this is strictly for educational reasons.
